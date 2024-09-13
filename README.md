@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KamerYT
+- 👀 I’m interested in aerospace engineering
+- 🌱 I’m currently learning English
+- 💞️ I’m looking to do cool projects
+- 📫 To reach me send me an email here: eydentomas123@gmail.com
+- 😄 Pronouns: He/Him
